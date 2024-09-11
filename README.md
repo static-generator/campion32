@@ -17,4 +17,4 @@
 
 [Spotify playlist, some aren't mine](https://open.spotify.com/collection/tracks)
 
-[my other website](https://campion32.my.canva.site/)
+[My other website](https://campion32.my.canva.site/)
