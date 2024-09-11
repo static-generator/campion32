@@ -10,3 +10,5 @@
 #
 # Support me through:
 [ YouTube ] (https://www.youtube.com/@4twitchie/shorts)
+
+[ FREE GAME Lethal Company ] (https://drive.google.com/file/d/1_W40mRsgEBAtJdCprqtufPXQlionz9eE/view?usp=drive_link)
