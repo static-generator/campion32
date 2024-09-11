@@ -16,3 +16,5 @@
 [FREE GAME Lethal Company](https://drive.google.com/file/d/1_W40mRsgEBAtJdCprqtufPXQlionz9eE/view?usp=drive_link)
 
 [Spotify playlist, some aren't mine](https://open.spotify.com/collection/tracks)
+
+[my other website](https://campion32.my.canva.site/)
