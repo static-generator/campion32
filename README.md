@@ -5,6 +5,9 @@
 # Reached *2,300* elo
 # Became a champion once in a tournament
 # Joined many tournaments
+# Hobbies
+# Play Chess
+# Debate
 # Support me through:
 [YouTube](https://www.youtube.com/@4twitchie/shorts)
 
