@@ -4,7 +4,7 @@
 
 # Hobbies
 # - Achievements in chess
-![alt text] ![Screenshot 2024-09-27 131028](https://github.com/user-attachments/assets/ae79a708-c5df-496e-bb6d-a7c0eb640e08)
+![Screenshot 2024-09-27 131028](https://github.com/user-attachments/assets/ae79a708-c5df-496e-bb6d-a7c0eb640e08)
 
 # Reached *2,300* elo
 # Became a champion once in a tournament
